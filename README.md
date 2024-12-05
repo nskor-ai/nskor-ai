@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nskor-ai
+- 👋 Hi, I’m @nskor
 - 👀 I’m interested in ai and entrepreneurship
 - 🌱 I’m currently learning mba in innovation and entrepreneurhsip as well coding at my free time
 - 💞️ I’m looking to collaborate on new startup ideas
